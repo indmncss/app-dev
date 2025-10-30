@@ -1,4 +1,4 @@
-# My Favorite Series 🎬
+# My Favorite Series 
 
 ## Title: Stranger Things
 
@@ -7,26 +7,26 @@
 
 ---
 
-### 📝 Summary
+###  Summary
 *Stranger Things* is a thrilling Netflix series set in the 1980s.  
 It follows a group of kids who encounter supernatural forces and a secret government lab while searching for their missing friend.
 
 ---
 
-### ⭐ Reasons Why I Like It
-1. The 80s nostalgic setting 🎮  
+###  Reasons Why I Like It
+1. The 80s nostalgic setting   
 2. Strong friendship and teamwork  
 3. Engaging storyline with emotional depth  
 4. Amazing soundtrack and visual effects  
 
 ---
 
-### 🗣️ Favorite Quote
+###  Favorite Quote
 > "Friends don't lie."
 
 ---
 
-### 📺 My Rating
+###  My Rating
 ⭐⭐⭐⭐⭐ (5/5 stars)
 
 ---
